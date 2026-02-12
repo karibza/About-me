@@ -1,7 +1,7 @@
 # ◸ OMG IT'S KARIBZAS ◿
 Hi! Yes I'm karibza, also known as: Robert ; NATHF ; je
 
-There's some information about me as you can see! - Last edited: 06.01.2025
+There's some information about me as you can see! - Last edited: 12.02.2025
 ─────────────────────────────────────────────────────────────────────
 # ◸ About Me ◿
 → I'm 14 years old; I speak Russian and English.
@@ -10,7 +10,7 @@ There's some information about me as you can see! - Last edited: 06.01.2025
 
 → I use only **Telegram** and **Discord**, don't ask for my other socials or my phone number: I also never text on socials first, it doesn't mean I forgot about you or don't want to talk to you; I don't check Discord until I know and sure that someone texted me there, so I sometimes can not respond for weeks.
 
-→ I'm introverted and mostly a listener, sometimes I can not respond but be sure that I readed your text: I often can just ignore when my friends is online or not feeling like I want to talk. 
+→ Sometimes I can not respond but be sure that I readed your text: I often can just ignore when my friends is online or not feeling like I want to talk. 
 
 ─────────────────────────────────────────────────────────────────────
 # ◸ Nickname in PT ◿
@@ -65,3 +65,4 @@ And You sure about it?
 If you really want to befriend me, then say it right away, because I see that most people is afraid to talk to me, for some reason,,, but you won't make me mad!
 
 I just don't consider someone a friend if we know each other for less than a couple of weeks and we talked and played together no more than one time... Yeah I need constant communication with my friends.
+<img width="2000" height="500" alt="Без названия716_20251203184724" src="https://github.com/user-attachments/assets/535c4c06-75a2-4dd1-8ff7-2aec651b9690" />
